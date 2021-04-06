@@ -7,5 +7,6 @@ Chapter 1: The Awakening
 Chapter 2: Sleepless Nights
 
 Chapter 3: The Garden
-
+ Yuteleon finally have a garden full of vivicious and deadly plants.
+ 
 Chapter 4: The Solution
